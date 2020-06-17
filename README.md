@@ -1,1 +1,0 @@
-# smc2020.github.io
